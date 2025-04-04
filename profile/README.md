@@ -1,6 +1,6 @@
 ## 🌍 About
 
-[Terra Logic](https://terralogi.cc) is an earth-first information technology consultancy based out of Launceston, Tasmania.
+[Terra Eclectic](https://terraeclecti.cc) is an earth-first information technology consultancy based out of Launceston, Tasmania.
 
 ## 🎯 Vision
 
